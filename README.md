@@ -1,5 +1,5 @@
-## Hello 👋! I'm Ayase-PH!
-You can just call me 'Ayase' :P
+## Hello 👋! I'm Khai-247!
+You can just call me 'Khai' :P
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Ayase-PH" alt="starnamics" /></a> </p>
 
 ### 🚀 About Me
